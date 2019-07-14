@@ -1,3 +1,5 @@
+*tldr; We are planning to organize our road-ahead meeting on **20th July 2019** in Delhi where we plan to discuss our past, present and future. We also hope to find community members who're willing to play a more active role. We encourage you to please respond to this post and let us know your interest towards attending this meeting. We'll share the venue details as soon as we have an approximate count of people who would like to join.*
+
 ### Our Journey till now 🗺🚌🏕
 
 Our small community is almost a year old, and we have an odd 150 members on board. We thank all of you for being an important part. Yes, there has been a prolonged silence from the a few months, but we, the moderators, would like to share a few updates from our end regarding the past, present and future of RUsersDelhi:
